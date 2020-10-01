@@ -8,7 +8,7 @@ The tutorial videos are available on our [YouTube channel](http://joincfe.com/yo
 
 Subscribe to our [YouTube Channel](http://joincfe.com/youtube)
 
-Thanks for watching!
+Thank you for watching!
 
 Team CFE
 
